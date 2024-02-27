@@ -1,2 +1,5 @@
 # Uuuusimba
-Panie Walaszku kiedy nowy odcinek Bomby
+Tytuł: uuusimba
+autor: Sigma
+Opis: Panie Walaszku...
+Uruchomienie:
