@@ -1,2 +1,2 @@
 # Uuuusimba
-Walaszek Chuju Kiedy Nowy Bomba
+Panie Walaszku kiedy nowy odcinek Bomby
